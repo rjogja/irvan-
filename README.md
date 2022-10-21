@@ -1,2 +1,1 @@
-# irvan-
-mas mau bilang sesuatu
+mau bilang sesuatu ke ayang 
